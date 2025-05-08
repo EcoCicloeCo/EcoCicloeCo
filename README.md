@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EcoCicloeCo
+- 👋 Hi, I’m @EcoCiclo&Co
 - 👀 I’m interested in Menstrual and reproductive health 
 - 🌱 I’m currently learning Artificial intelligence for women's and girls' health
 - 💞️ I’m looking to collaborate on ... Menstrual and reproductive health projects and research 
